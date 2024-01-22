@@ -1,2 +1,2 @@
 # L1-IIT-2024
-Mon premier projet
+Bonjour je suis Diakité Hamet étudiant en L1-IIT a l'université ERPIE.
